@@ -1,0 +1,1 @@
+# softwareinternbloodl-techpalinrome
